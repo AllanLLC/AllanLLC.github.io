@@ -1,1 +1,3 @@
-Simple dumbass project 
+Wordle só que com fetishes.
+
+é só isso
